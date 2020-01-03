@@ -20,7 +20,4 @@
 3. Account Instagram is real your account
 
 
-( File have password (Private) ) ..!!!
-Contact me if you want :) 
-
-wa.me/62895326509469
+( File have password (Private)
